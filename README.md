@@ -1,1 +1,7 @@
-# FnNewGen
+HI
+HIH
+IH
+HI
+HIH
+HI
+H
